@@ -1,0 +1,1 @@
+# GoodByeDpi-Version2938-TurkishServer.
